@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on discord
 - 📫 How to reach me idk
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: none
+- ⚡ Fun fact: 🤫🧏‍♂️
 
 <!---
 I-aint-rainbow/I-aint-rainbow is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
